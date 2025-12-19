@@ -6,4 +6,4 @@ I'll learn and master cybersecurity and also obtain a Masters in cybersecurity i
 I also will learn how to swim, drive and speak french language.
 I'll also migrate to Canada.
 It's my goal to be a world class problem solver using the power of technology.
-I'll be a father of two beautiful kids, the husband of a beautiful and smart lady. together we'll be an family of excellence.
+I'll be a father of two beautiful kids, the husband of a beautiful and smart lady. Together, We'll be an family of love, respect and excellence.
